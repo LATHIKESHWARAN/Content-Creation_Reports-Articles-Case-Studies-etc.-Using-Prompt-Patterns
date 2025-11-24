@@ -1,0 +1,1 @@
+# Content-Creation_Reports-Articles-Case-Studies-etc.-Using-Prompt-Patterns
